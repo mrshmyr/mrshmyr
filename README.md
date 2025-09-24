@@ -2,7 +2,8 @@
 
   ᱖  ⠀ ⠀ ꒰ ⠀꒱  ⠀ ⠀ ྀི ᱖  ⠀ ⠀ ꒰ ⠀꒱  ⠀ ⠀ ྀི ᱖  ⠀ ⠀ ꒰ ⠀꒱  ⠀ ⠀ ྀི ᱖  ⠀ ⠀ ꒰ ⠀꒱  ⠀ ⠀ ྀི ᱖ 
 
- ![6955-inosuke](https://github.com/user-attachments/assets/37807a4a-a5c1-40d3-af9d-e2042012095a)
+ ![3d472fff8954fd6a2aaca60fb93cb8d4](https://github.com/user-attachments/assets/709e2c95-eec8-4d68-8f10-8ecbbd03e6a5)
+
 
 
 
